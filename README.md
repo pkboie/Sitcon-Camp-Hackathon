@@ -1,1 +1,0 @@
-# Sitcon-Camp-Hackathon
